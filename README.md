@@ -27,6 +27,13 @@ Our Day was started at 9:30 am at F109 room. Astik Sir was our english professor
 After this fun leacture, Our Second lecture was about math which was taken by Prof.Rajbir Kaur Mam at 10.30am at ME sem hall. She explained us about derivative and asked few questions realated to it.
 At last our third leacture was taken by Ranvir Kaur Mam at F109 room. She expalined us about the subject Basic Electrical and Electronics Engineering (BEEE). She also explained why it is important for a computer science student.
 # Day-6
-Our Day waas started at 9.30 am at F108 room. Ranvir Kaur Mam our BEEE teacher addressed us. Her leacture was interesting.
-at 10.30 am our second leacture of Ps
+Our Day waas started at 9:30 am at F108 room. Ranvir Kaur Mam our BEEE teacher addressed us. Her leacture was interesting.
+At 10.30 am our second leacture of P2P was started by our seniors at F108 room. Our senior Tarnpreet Kaur and Sharanjeet Singh explained each topic of session very clearly. It was very intersting to learn the basics of programming from our seniors.
+After this there was a break from 11:30 to 12:30. Then at 12.30 am, We the students of Cse and It departments reached the auditorium. Then Lakhvir Singh Khana incharge of CML addressed us and takled with us about CML. Full Form of CML is Center for Multifacted Learing. He explained the vision and purpose of CML. His talk was very encouraging for us. He explained how we should think creativily. He also explained about swayam and nptel courses. He explained how we can take advantages of these courses.
+# Day-7
+Our Day was started at 9:30 am at auditorium. Our first leacture was about the topic student welfare which was given by Dr. Parminder Singh. He with his warm words explained to us about student welfare. It was a interesting leacture to hear.
+After this Dr.Randhir Singh sir explained to us about conduction of examination. He explained how exam are conducted in our colleges. His leacture was infromative to us because it will help us in our examintion.
+After this there was a break from 12:30 to 1:30. At 1:30 we reached our classroom. Prof.Rajvir Kaur mam addressed us. She explained her teaching methods and also how a student should be good in both study and activity.
+Then at 2:30 our P2P class was conducted by our senior.
+Today's all sessions were useful and informative.
 
