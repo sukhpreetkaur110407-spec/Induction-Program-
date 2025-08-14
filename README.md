@@ -1,5 +1,5 @@
-Name: Sukhpreet kaur 
-Branch: B.Tech Cse
+# Name: Sukhpreet kaur 
+# Branch: B.Tech Cse
 # Day-1  
 Our day was started at 8:30 am at Gurdwara Sahib with Japji Sahib, Chaupai Sahib, Kirtan, Ardaas and Kadhah Parshad. At 10:30 Am Refreshments were served at hostel no.2.
 We reached the auditorium at 11:00 am and were welcomed with a welcome kit before entering in the auditorium. Welcome Speech was given by our senior Taranpreet Kaur, She Informed us that we are celebrating the 70th Year of Guru Nanak Dev Engineering College in the field of education.
