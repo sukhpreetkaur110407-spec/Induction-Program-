@@ -18,6 +18,15 @@ Our Day was started at 9 am at auditorium where the first expert lecture was giv
 The Next lecture was about " Universal Human Values" by Dr. Priya Darshni Mam. She started the lecture with the introduction of 2-3 students.Then we talked about the true meaning of life, happiness, efforts,aspiration. After that she explained the steps to fulfil Basic Aspiration. Lastly she expalined how right understanding, realtionship, physical facilitity and other things should be well balanced.
 Today's sessions were inspiring and fun.
 # Day-4
-My Day started at 9.30am at TCC Sem Hall where Rajvir Kaur Mam told us about chemistry syllabus, her teaching way and motivated us about all this.
-At 10:30am our P2P lecture started where our senior Taranpreet Kaur and Sharanjeet Singh  addressed us. And give lecture about programming from the very basic. It was a fun and intersting lecture. After this there was a break of 1 hour from 11:30 to 12:30 
-After the break we reached the auditorium at 12:30 and our lecture was started. 
+My Day was started at 9.30am at TCC Sem Hall where Rajvir Kaur Mam told us about chemistry syllabus, her teaching way and motivated us about all this.
+At 10:30am our Peer to Peer (P2P) lecture started, where our senior Taranpreet Kaur and Sharanjeet Singh  teached us from the very basic of C++ and programming. It was a very informative and useful lecture for us to learn the basic of programming. After this there was a break of 1 hour from 11:30 to 12:30.
+After the break we reached the auditorium at 12:30 and our lecture was started by Dr.Priya Darshani mam. It was her second lecture to teach us about topic of Universal Human Values. She focused on qualities like empathy, honesty, respect, compassion and responsiblity. She further explained how these values help us to live a meaningful life. She also explained that following these values leads to personal growth and helps to build a kinder world.
+After this fruitful leacture, The members of Causmic Club told us about their club and explained what it is and what they do
+# Day-5
+Our Day was started at 9:30 am at F109 room. Astik Sir was our english professor of that day. He first told us to write three questions like describe ypur self,why we choose this college and this branch,our strenghts and weakness and at last writing a letter. After this he took a intorduction of all the student on the basis of these questions. All the students introduced themselves to sir.
+After this fun leacture, Our Second lecture was about math which was taken by Prof.Rajbir Kaur Mam at 10.30am at ME sem hall. She explained us about derivative and asked few questions realated to it.
+At last our third leacture was taken by Ranvir Kaur Mam at F109 room. She expalined us about the subject Basic Electrical and Electronics Engineering (BEEE). She also explained why it is important for a computer science student.
+# Day-6
+Our Day waas started at 9.30 am at F108 room. Ranvir Kaur Mam our BEEE teacher addressed us. Her leacture was interesting.
+at 10.30 am our second leacture of Ps
+
