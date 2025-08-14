@@ -17,3 +17,7 @@ Following the hole session was a escorted and intersting day.
 Our Day was started at 9 am at auditorium where the first expert lecture was given  by Dr. Jaswinder Singh sir (Incharge-IAPT). He very Interstingly explained each and every topic in fun way.He explained about the word Ik-Onkar. After that he explained longitudnal wave and transverse wave very easily. He also explained about the number 108 and 9. He helped us to learn each number of bones in our body very easily. At Last he exlained about the true meaning of the  word "Bhagwan". I would say that it was the most fun and intersting lecture I ever had.  
 The Next lecture was about " Universal Human Values" by Dr. Priya Darshni Mam. She started the lecture with the introduction of 2-3 students.Then we talked about the true meaning of life, happiness, efforts,aspiration. After that she explained the steps to fulfil Basic Aspiration. Lastly she expalined how right understanding, realtionship, physical facilitity and other things should be well balanced.
 Today's sessions were inspiring and fun.
+# Day-4
+My Day started at 9.30am at TCC Sem Hall where Rajvir Kaur Mam told us about chemistry syllabus, her teaching way and motivated us about all this.
+At 10:30am our P2P lecture started where our senior Taranpreet Kaur and Sharanjeet Singh  addressed us. And give lecture about programming from the very basic. It was a fun and intersting lecture. After this there was a break of 1 hour from 11:30 to 12:30 
+After the break we reached the auditorium at 12:30 and our lecture was started. 
